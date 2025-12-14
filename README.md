@@ -43,4 +43,4 @@ I love meeting new people and discussing collaboration, ideas, or opportunities 
 * **LinkedIn:** `marviecephas`
 * **GitHub:** `marviecephas`
 * **X (Twitter):** `@marvieceph`
-* **Email:** `marviecephas@gmail.com`iecephas@gmail.com`
+* **Email:** `marviecephas@gmail.com`
